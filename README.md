@@ -1,2 +1,0 @@
-# dzikprzedsilowniaa
-beka
